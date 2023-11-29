@@ -1,5 +1,7 @@
 <h1 align="center">Hi! I'm Etai Levi 👋</h1>
 
+<h2>Full Stack Developer</h2>
+
 • 🧲 A people's person and a tech lover. Autodidact, ambitious, and a team player!
 
 • 🌴 Proficient in building single-page apps. 
