@@ -12,7 +12,7 @@
 
 • 📫 You can reach me at **etai3000@gmail.com**
 
-• 💙 Fun fact: I love skiing, piano playing, and watching Netflix 🎬
+• 💙 Fun fact: I love skiing, piano playing, and watching horror movies 🎬
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
